@@ -1,6 +1,3 @@
-![Screenshot from 2024-09-02 09-34-59](https://github.com/user-attachments/assets/3062a64d-8c9c-4e30-a4ec-44c61aac389b)
-
-
 ![Screenshot from 2024-09-02 09-35-10](https://github.com/user-attachments/assets/db86270e-8c1e-4284-bc9e-f35f5ee062f8)
 
 ![Screenshot from 2024-09-02 09-35-26](https://github.com/user-attachments/assets/11fce9bd-2f05-42b5-8ba2-3f5b805e5a69)
